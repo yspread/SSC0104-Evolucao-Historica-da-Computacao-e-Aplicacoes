@@ -15,7 +15,7 @@ https://sites.google.com/usp.br/sinclairzxspectrum2/in%C3%ADcio
 
 ## Cartaz
 
-
+https://drive.google.com/file/d/1cPVs8ysqrrKgvOa4poj-vdjgTuOIMfDi/view?usp=sharing
 
 ## Site
 
